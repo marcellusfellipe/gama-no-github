@@ -1,0 +1,1 @@
+Até o momento estou gostando muito do curso! Um bombardeio de informações, mas que me motiva a querer mais e mais e me mostra o quando tenho a aprender e evoluir nesse vasto muundo que é a tecnologia.
